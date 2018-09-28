@@ -1,0 +1,1 @@
+# Exercices_thursday_friday
